@@ -6,4 +6,4 @@
 - Fue un proceso de auto descubrimiento y entendimiento, no es de "auto justificación" 
 - ¿porque ahora? al hacer un auto psicoanálisis, llegue a identificar traumas, patrones y comportamientos de gestión emocional (necesidad sicológica) (uso de pañales) 
 - Al hacerlo me di cuenta porque siempre que "falta algo" aunque con mindfulness y ejercicios no es suficiente.
-- Como lo veo: es un mecanismo sicológico de regulación emocional profunda y no como un resultado traumático del pasado
+- Como lo veo: es un mecanismo sicológico de regulación emocional profunda y no como un resultado traumático del pasado 
