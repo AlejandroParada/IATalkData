@@ -80,7 +80,7 @@
 **👩‍🦰 Rebeca Suárez:**
 > Por favor responde esto ? Que tengo que ir afuera
 
-**🧑‍ Alejandro:**\
+**🧑‍ Alejandro:**
 > Lo de los días lo dije yo, se me ocurrio</p>
 
 **👩‍🦰 Rebeca Suárez:**

@@ -14,10 +14,10 @@
 - No le importa las historia de mi vida, piensa que la invento como una excusa
 - No me cree todo lo que le diga, sobre como me siento, piensa que **es su culpa** o lo que hace **no es sufiente**
 - Empieza a incomodarse (choca con su modelo interno, y le genera ansiedad)
-- Pienza en un "tratamiento que se termina" y se cura el problema
+- Piensa que es un "tratamiento que se termina" y se cura el problema
 - Ve el tema del pañal como el **"problema principal"** o el trauma a superar (pero yo lo veo como un **"mecanismo sicológico de regulación emocional"** para superar los traumas)
-- Lo ve como que "esta mal" (si no lo entiende entonces esta mal para ella)
-- Lo de haber hablado antes con ella piensa que fue "una terapia", y no entiende como no "lo supere"
+- Lo ve como que "**esta mal**" (si no lo entiende entonces esta mal para ella)
+- Lo de haber hablado antes con ella piensa que fue "**una terapia**" (cosa que yo nunca vi como tal) , y no entiende como no "lo supere", porque "**quedo solucionado**" (según ella) (no tenía forma rebatir nada o explicar algo que no entendía y por eso lo deje ahí)
 - Piensa que es un fetiche, una adiccion, un trauma [Aqui tengo un analisis profundo porque no](https://github.com/AlejandroParada/IATalkData/blob/main/docs/analisis_psicologico_profundo.md)
 
  Durante la noche tuvimos una charla en la que ella pensaba que "lo habia superado" (lo del trauma de "los pañales"). Ella me dijo que: 
