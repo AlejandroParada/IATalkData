@@ -67,6 +67,7 @@
 > Me siento ansiosa\
 > El te sugirió ese tratamiento?
 
+**🧑‍ Alejandro:**
 > El me dijo veo que siempre estas como 'a escondidas' es lo que veo siempre el mismo patrón
 
 **👩‍🦰 Rebeca Suárez:**

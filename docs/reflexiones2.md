@@ -1,6 +1,14 @@
-## Ayuda por favor en esto Wilquer!!:
+# Ayuda por favor en esto Wilquer!!:
 
- Estuve pensado como decirselo a mi esposa la semana pasada, entoces escribi una [carta a Rebeca](https://github.com/AlejandroParada/IATalkData/blob/main/docs/carta_rebeca.md), (por que Wilquer me dijo que lo dijera a Rebeca), entonces le di la carta el jueves de mañana le di la carta antes de ir a trabajar. Tardo en leerla, cuando la leyo empezaron a caer sus mensajes: [chat de WhatsApp](https://github.com/AlejandroParada/IATalkData/blob/main/conversaciones/chat.md)
+## ¿Por que ahora el tema de los pañales y no antes?
+
+- Porque ahora tengo las garantias profesionales/sicológico/y de valides eclesiastica que nunca tuve antes que me respaldan (y aclaran de que **no estoy loco**). Antes me sentía vulnerable al plantear el tema, o tenía que **"esconderlo"** porque no sabía como explicarlo, y al plantearlo me añadian "**mas culpa**" por la incompresion, poque se me decía que el trauma era **el querer usar pañales** 
+- Porque despues hacer una reflexion profunda, descubri que el tema de los pañales como un **"mecanismo sicológico de regulación emocional"** no lo había identificado antes, y arrastraba **una culpa innecesaria** 
+- Aunque compenzo con minfulness y ejercicios adecuados (running, HIIT), aun siento que me falta esa **regulacion emocional** que quiero tener en mi vida, el tema ahora es el ser **comprendido**
+
+## ¿Como explicarserlo a mi esposa?
+
+ Estuve pensado como decirselo a Rebeca la semana pasada, entoces escribi una [carta a Rebeca](https://github.com/AlejandroParada/IATalkData/blob/main/docs/carta_rebeca.md), (por que Wilquer me dijo que se lo dijera a Rebeca), entonces le di la carta el jueves de mañana le di la carta antes de ir a trabajar (en papel impreso). Tardo en leerla (en su trabajo), cuando la leyo empezaron a caer sus mensajes: [chat de WhatsApp](https://github.com/AlejandroParada/IATalkData/blob/main/conversaciones/chat.md)
  
  Mis conclusiones o reflexiones:
 - No le importa las historia de mi vida, piensa que la invento como una excusa
