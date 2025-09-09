@@ -1,10 +1,9 @@
-# Análisis Psicológico Profundo: Parafilia ABDL
-## Fundamentado en Expertise Multidisciplinario
+# Análisis Psicológico Profundo: 
+## El uso de pañales en forma voluntaria
 
 ---
 
 ## **¿Por qué es o no es un fetiche?**
-
 ### **ES un fetiche, pero contextualizado apropiadamente:**
 
 **Desde la perspectiva psicoanalítica (Freud/Money):**
@@ -142,10 +141,10 @@
 
 ### **Estrategia recomendada:**
 
-**Fase 1:** Educación Rebeca (psicólogo SUD preparando terreno)
-**Fase 2:** Comunicación transparente (carta/conversación estructurada)
-**Fase 3:** Negociación práctica (2-3 veces/semana, espacios definidos)
-**Fase 4:** Integración matrimonial (aceptación mutua, crecimiento conjunto)
+- **Fase 1:** Educación Rebeca (psicólogo SUD preparando terreno)
+- **Fase 2:** Comunicación transparente (carta/conversación estructurada)
+- **Fase 3:** Negociación práctica (2-3 veces/semana, espacios definidos)
+- **Fase 4:** Integración matrimonial (aceptación mutua, crecimiento conjunto)
 
 ---
 
