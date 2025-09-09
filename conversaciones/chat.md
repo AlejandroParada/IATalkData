@@ -80,7 +80,8 @@
 **👩‍🦰 Rebeca Suárez:**
 > Por favor responde esto ? Que tengo que ir afuera
 
-> Lo de los días lo dije yo puede ser menos</p>
+**🧑‍ Alejandro:**\
+> Lo de los días lo dije yo, se me ocurrio</p>
 
 **👩‍🦰 Rebeca Suárez:**
 > No me estás respondiendo y me estoy poniendo peor
@@ -99,7 +100,7 @@ El dijo "siempre hay un secretismo" como el tema es un secreto
 
 **👩‍🦰 Rebeca Suárez:**
 > Pero ya no es secreto\
-> Ya lo sé y está vez no piensa hacer como las veces pasadas que trataba de olvidarlo\
+> Ya lo sé y está vez no pienso hacer como las veces pasadas que trataba de olvidarlo\
 > Pensando que así te ayudaba\
 > La idea es sanar\
 > Y como sanar es lo que te va a decir un profesional
