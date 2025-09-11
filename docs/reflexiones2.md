@@ -41,3 +41,8 @@
 ## Solicitud
  
  Por favor Wilquer ayudame!, para el jueves te voy a pedir que tengas la session con Rebeca, para orientar en el tema (de 'los pañales' por que esta tomando otro camino y otro color y es peor el desconocimiento o mezclar cosa que no son) porque a mi no me cree, piensa que todo "es por algo" (y no lo puede separar de eso). Quizá podés decir que notás "algo" en ella que te gustaría tratar con ella sola (la carta, la noticia de "los pañales", etc), por que necesita una base mas sólida que esta faltando. Te agradezco un monton !!!
+
+ 
+## Solicitud
+ 
+ Por favor Wilquer ayudame!, para el jueves te voy a pedir que tengas la session con Rebeca por favor es importante, para orientar en el tema (de 'los pañales' por que esta tomando otro camino y otro color y es peor el desconocimiento o mezclar cosa que no son) porque a mi no me cree, piensa que todo "es por algo" (y no lo puede separar de eso). Quizá podés decir que notás "algo" en ella que te gustaría tratar con ella sola (la carta, la noticia de "los pañales", etc), por que necesita una base mas sólida que esta faltando. Te agradezco un monton !!!
